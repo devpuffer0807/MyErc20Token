@@ -1,10 +1,3 @@
-don't mention in freelancer chat.
-
-please contact with me via skype.
-PufferDev@gmail.com
-live:.cid.dda9b0d4feab60c8
-
-if you ok then please send me 111 via freelancer chat.
 
 # MyErc20Token
 How can I get some?
